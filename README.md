@@ -21,6 +21,7 @@ Join this server to chat with cool people or for support
  Youtube: https://www.youtube.com/channel/UCuAXFkgsw1L7xaCfnd5JJOw
 <br /> Twitter: https://twitter.com/rickastley
 <br /> Facebook: https://www.facebook.com/RickAstley
+https://repository-images.githubusercontent.com/367934588/4a27ae00-b73b-11eb-801b-36dd1756dc93
 
 
 
