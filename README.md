@@ -20,8 +20,9 @@ Join this server to chat with cool people or for support
 # Credit: Rick Astley 
  Youtube: https://www.youtube.com/channel/UCuAXFkgsw1L7xaCfnd5JJOw
 <br /> Twitter: https://twitter.com/rickastley
-<br /> Facebook: https://www.facebook.com/RickAstley
-https://repository-images.githubusercontent.com/367934588/4a27ae00-b73b-11eb-801b-36dd1756dc93
+<br /> Facebook: https://www.facebook.com/RickAstley![4a27ae00-b73b-11eb-801b-36dd1756dc93](https://user-images.githubusercontent.com/86417658/151287317-61f548dc-114d-4f7c-911b-18cf4dbc4a5b.png)
+
+
 
 
 
